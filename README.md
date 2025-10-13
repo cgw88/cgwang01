@@ -1,8 +1,8 @@
-【吃瓜网】更新时间：2025年08月25日
+【吃瓜网】更新时间：2025年10月13日
 
-吃瓜网大陆入口 https://cgwang79.com/
+吃瓜网大陆入口 https://cgwang89.com/
 
-吃瓜网App地址 https://cgwapp.xsmeutz.xyz
+吃瓜网App地址 https://cgwapp.akiowyli.xyz
 
 吃瓜网永久主页 https://cgw321.com
 
